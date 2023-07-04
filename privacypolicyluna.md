@@ -1,0 +1,1 @@
+https://www.app-privacy-policy.com/live.php?token=TNjXQpDi9vnzHznsmHnLuBaPDdez1ZBC
